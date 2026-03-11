@@ -23,4 +23,4 @@ a participatory mathematical process — not a political one.
 - Technology-agnostic
 
 ## Contact
-[tu email o formulario]
+escobarplacenciaisaac@gmail.com
